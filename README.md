@@ -1,5 +1,5 @@
 # CRYPTED EXPLORER
-####As it's name it is going to explore the Stuffs that you want to know and understand since many years.
+*As it's name it is going to explore the Stuffs that you want to know and understand since many years.*
 
 ## Why Crypted Explorer came?
 - This aims to provide knowledge about person's inner strength.
