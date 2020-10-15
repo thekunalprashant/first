@@ -7,7 +7,7 @@
 - It helps to learn people new and creative things.
 
 ## Currently site is underconstruction so don't Judge.
-### DUE TO COVID-19 
+### DUE TO COVID-19 lives have gone through a drastic change
 **STAY SAFE STAY HOME STAY ALIVE**
 
 
